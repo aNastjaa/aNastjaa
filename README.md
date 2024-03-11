@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Nastja
+- 👀 I’m interested in dogs mostly, but also a bit in IT.
+- 🌱 I’m currently learning web design and development.
+- 📫 How to reach me: caramelevaa@gmail.com
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: i don't know what i'm doing here.
